@@ -1,0 +1,2 @@
+# Americas-sales
+Every week, there’s a new shopping list: special sales on home goods, clothing, gifts, food, pet accessories, and more! With so much to buy, shoppers spend a lot of time looking for the best deal in town. The new Digital Marketplace For Buyers And Etailers aims to become the single place for all of government to buy what it needs to design, build and support its digital services.America’s Weekly Sales is the first nationwide digital marketplace that’s designed to gather retailers across the United States who are currently offering special sales.
